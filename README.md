@@ -1,4 +1,4 @@
-# proyecto El Gnaso negro
+# proyecto El Ganso negro
 
 ***Por Evelin  Cruz***
 
